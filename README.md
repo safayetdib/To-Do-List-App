@@ -21,6 +21,6 @@ https://user-images.githubusercontent.com/86869464/195066384-62dc62ad-07eb-4cf3-
 
 ---
 
-> GitHub [@SafayetAlam](https://github.com/SafayetAlam) &nbsp;&middot;&nbsp;
+> GitHub [@safayetdib](https://github.com/safayetdib) &nbsp;&middot;&nbsp;
 
 
